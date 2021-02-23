@@ -1,1 +1,0 @@
-# AR_EED60_2021ARdkuv5
